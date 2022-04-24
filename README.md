@@ -1,0 +1,1 @@
+[スライド](https://docs.google.com/presentation/d/1WExqjeerbDe5rbHon3uWj4UpcnpP3PkXhOrOY0mf25E/edit?usp=sharing)
