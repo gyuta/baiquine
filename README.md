@@ -1,3 +1,7 @@
+![プレゼンテーション1](https://user-images.githubusercontent.com/53563180/165072584-de0ee013-29ad-4291-bb90-84758e660c5f.gif)
+
+[↑の動画](https://drive.google.com/file/d/1dOcTjaOdbx6lpg8mhsSRhnN0VkkNw4Tr/view?usp=sharing)
+
 [発表資料](https://docs.google.com/presentation/d/1WExqjeerbDe5rbHon3uWj4UpcnpP3PkXhOrOY0mf25E/edit?usp=sharing)
 
 ### クワインって？
